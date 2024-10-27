@@ -58,7 +58,7 @@ export const profileConfig: ProfileConfig = {
     },
     {
       name: '虎牙',
-      icon: 'icon-park:tiger-zodiac',
+      icon: 'https://api.iconify.design/icon-park:tiger-zodiac.svg',
       url: 'https://www.huya.com/2550505',
     },
   ],
