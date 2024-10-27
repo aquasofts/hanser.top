@@ -4,7 +4,7 @@ published: 2024-10-27
 description: ''
 image: './羽が横切る.png'
 tags: [Pixiv美图]
-category: ''
+category: 'Pixiv美图'
 draft: false 
 lang: ''
 ---
