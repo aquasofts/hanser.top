@@ -1,6 +1,6 @@
 ---
 title: VITAMIN
-published: 2024-10-27
+published: 2024-10-28
 description: ''
 image: '../assets/images/VITAMIN.jpg'
 tags: [Pixiv美图]
