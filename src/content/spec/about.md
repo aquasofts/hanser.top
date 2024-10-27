@@ -1,6 +1,10 @@
 # About
 这是属于毛怪们的图集
 
+本站地址 [hanser.top](https://hanser.top)
+
+基于 cloudflare 的负载均衡 [cf.hanser.top](https://cf.hanser.top)
+
 :::tip
 
 [hanser的bilibili个人空间](https://space.bilibili.com/11073)
