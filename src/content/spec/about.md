@@ -13,6 +13,8 @@
 
 
 
+
+
 # Hanser
 
 **Hanser**是2009年活跃至今的[UP主](https://zh.moegirl.org.cn/UP主)、同时也作为[唱见](https://zh.moegirl.org.cn/唱见)、[CV](https://zh.moegirl.org.cn/声优)。 在2020年-2023年为虚拟艺人团体[VirtuaReal Star](https://zh.moegirl.org.cn/VirtuaReal)成员，现已退出VirtuaReal。
