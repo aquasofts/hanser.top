@@ -130,7 +130,7 @@
 | 配演语言                                                     | 中文                                                         |
 | 所属公司                                                     | [VirtuaReal](https://zh.moegirl.org.cn/VirtuaReal)           |
 | 代表角色                                                     | [布洛妮娅·扎伊切克](https://zh.moegirl.org.cn/布洛妮娅·扎伊切克(崩坏3))《[崩坏学园2](https://zh.moegirl.org.cn/崩坏学园2)》《[崩坏3](https://zh.moegirl.org.cn/崩坏3)》 |
-| ![Folder Hexagonal Icon.svg](https://img.moegirl.org.cn/common/thumb/4/48/Folder_Hexagonal_Icon.svg/16px-Folder_Hexagonal_Icon.svg.png) [配音的角色](https://zh.moegirl.org.cn/Category:Hanser配音角色) [演唱的歌曲](https://zh.moegirl.org.cn/Category:Hanser歌曲) [相关文件](https://commons.moegirl.org.cn/分类:Hanser) |                                                              |
+| ![Folder Hexagonal Icon.svg](./icon1.png) [配音的角色](https://zh.moegirl.org.cn/Category:Hanser配音角色) [演唱的歌曲](https://zh.moegirl.org.cn/Category:Hanser歌曲) [相关文件](https://commons.moegirl.org.cn/分类:Hanser) |                                                              |
 
 - 主要角色以**粗体**显示。
 
