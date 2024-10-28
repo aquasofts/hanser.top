@@ -11,6 +11,52 @@
 
 :::
 
+
+
+**Hanser**是2009年活跃至今的[UP主](https://zh.moegirl.org.cn/UP主)、同时也作为[唱见](https://zh.moegirl.org.cn/唱见)、[CV](https://zh.moegirl.org.cn/声优)。 在2020年-2023年为虚拟艺人团体[VirtuaReal Star](https://zh.moegirl.org.cn/VirtuaReal)成员，现已退出VirtuaReal。
+
+## 简介
+
+- CV/唱见
+
+- 曾在新加坡上大学，毕业后从事日英翻译行业。在上学期间包括毕业之后，很长时间都在用爱发电，最后转为全职UP同时也担任配音工作。
+
+- 被称为儿歌王、小天使。*你管这种人叫小天使？[堕天使](https://zh.moegirl.org.cn/堕天使)也是天使啊！*
+
+- 声线：带鼻音，*可分裂多种每十年增加一种声线国产[钉宫理惠](https://zh.moegirl.org.cn/钉宫理惠)*
+
+- 作为中配银魂的策划、台本，以及神乐的配音 。
+
+- 曾在新语联盟，月声中配，永恒湛蓝配音社参与配音。
+
+- 曾经做过翻译，在弹丸论破1和弹丸论破2的扑家汉化组担任汉化工作，帮人做音乐后期（hanser主打一个多功能）（hanser是块砖，哪里需要哪里搬）
+
+  早期活跃在5sing和各视频网站上，现主要活跃于B站
+
+- 国产原创游戏CV/网络原创配音作品CV
+
+- [YH深夜FM](https://www.lizhi.fm/1749728/)的主播之一
+
+- 2017年7月14日到2021年7月30日，在斗鱼直播。现已经回到B站直播
+
+- 粉丝昵称：毛怪
+
+  - 解释：hanser直播中提到每个人的肚子上是否都有一条线。粉丝发问：难道不是一条毛吗？被吐槽是毛怪，然后这个称呼就成为了粉丝昵称。
+
+- 爱好：唱歌配音，喜欢猫据说能听懂猫语、种植、摄影、旅行、潜水。
+
+- 每周一、三、五晚八点，在bilibili
+
+  255
+
+  直播间直播。
+
+  - 虽然加入了[VirtuaReal](https://zh.moegirl.org.cn/VirtuaReal)，但是并不会套皮直播，直播分区选择在娱乐区的萌宅领域，最多只用键鼠捕捉软件，严格意义上讲，虽然是虚拟偶像，但并不是虚拟主播，只有在出演大型活动时候会用虚拟形象现场表演。
+
+- 人物经历：给盘古递过斧子、帮女娲穿过针、狂飙婴儿车、进阶潜水员
+
+  
+
 ## hanser - 人物经历
 
 **数据截止至 2024-10-27*
@@ -68,7 +114,130 @@
 
 - 2024年9月15日，第一次参与冰火歌会，以虚拟形象演唱《[不需要陪伴的闲暇](https://zh.moegirl.org.cn/不需要陪伴的闲暇)》。
 
-  
+
+## 配音作品
+
+| Hanser                                                       |                                                              |
+| ------------------------------------------------------------ | ------------------------------------------------------------ |
+| 姓名                                                         | Hanser                                                       |
+| 出生                                                         | 5月15日                                                      |
+| 星座                                                         | 金牛座                                                       |
+| 身高                                                         | 155.5cm                                                      |
+| 配演语言                                                     | 中文                                                         |
+| 所属公司                                                     | [VirtuaReal](https://zh.moegirl.org.cn/VirtuaReal)           |
+| 代表角色                                                     | [布洛妮娅·扎伊切克](https://zh.moegirl.org.cn/布洛妮娅·扎伊切克(崩坏3))《[崩坏学园2](https://zh.moegirl.org.cn/崩坏学园2)》《[崩坏3](https://zh.moegirl.org.cn/崩坏3)》 |
+| ![Folder Hexagonal Icon.svg](https://img.moegirl.org.cn/common/thumb/4/48/Folder_Hexagonal_Icon.svg/16px-Folder_Hexagonal_Icon.svg.png) [配音的角色](https://zh.moegirl.org.cn/Category:Hanser配音角色) [演唱的歌曲](https://zh.moegirl.org.cn/Category:Hanser歌曲) [相关文件](https://commons.moegirl.org.cn/分类:Hanser) |                                                              |
+
+- 主要角色以**粗体**显示。
+
+### 动画剧集
+
+- 2019年
+
+- **[布洛妮娅·扎伊切克](https://zh.moegirl.org.cn/布洛妮娅·扎伊切克(崩坏3))**————《[女武神的餐桌](https://zh.moegirl.org.cn/女武神的餐桌)》
+
+- 2020年
+
+- **[布洛妮娅·扎伊切克](https://zh.moegirl.org.cn/布洛妮娅·扎伊切克(崩坏3))**————《[女武神的餐桌II](https://zh.moegirl.org.cn/女武神的餐桌)》
+
+- 2021年
+
+- [布洛妮娅·扎伊切克](https://zh.moegirl.org.cn/布洛妮娅·扎伊切克(崩坏3))————《[人偶学园](https://zh.moegirl.org.cn/人偶学园)》
+
+*****长生藤*————《[九九八十一](https://zh.moegirl.org.cn/index.php?title=九九八十一(动画)&action=edit&redlink=1)》动画播到第四话就停更了*
+
+- [缘结神](https://zh.moegirl.org.cn/阴阳师手游:缘结神)————《[没出息的阴阳师一家3](https://zh.moegirl.org.cn/阴阳师(手游))》
+- **Hanser**————《[仙王的日常生活 贰](https://zh.moegirl.org.cn/仙王的日常生活)》
+- **[藤原千花](https://zh.moegirl.org.cn/藤原千花)**————《[辉夜大小姐想让我告白～天才们的恋爱头脑战～](https://zh.moegirl.org.cn/辉夜大小姐想让我告白～天才们的恋爱头脑战～)》（日本）
+
+- 2022年
+
+- **[藤原千花](https://zh.moegirl.org.cn/藤原千花)**————《[辉夜大小姐想让我告白？～天才们的恋爱头脑战～](https://zh.moegirl.org.cn/辉夜大小姐想让我告白～天才们的恋爱头脑战～)》（日本）
+- 黑沼爱菜————《[在下坂本，有何贵干？](https://zh.moegirl.org.cn/在下坂本，有何贵干？)》（日本）
+
+- 2023年
+
+- 柳下————《近战法师》
+- 屠款款————《[电器少女](https://zh.moegirl.org.cn/电器少女)》
+- **[藤原千花](https://zh.moegirl.org.cn/藤原千花)**————《[辉夜大小姐想让我告白 -究极浪漫- ](https://zh.moegirl.org.cn/辉夜大小姐想让我告白_-究极浪漫-)》（日本）
+
+- 2024年
+
+- **[布洛妮娅·扎伊切克](https://zh.moegirl.org.cn/布洛妮娅·扎伊切克(崩坏3))**————《[旅途危机！圣芙蕾雅号特别事件](https://zh.moegirl.org.cn/旅途危机！圣芙蕾雅号特别事件)》
+
+### 游戏
+
+- 2013年
+
+- 那姆————《The Liars》
+
+- 2014年
+
+- 阿正、母亲————《[尘沙惑](https://zh.moegirl.org.cn/尘沙惑)》
+- 艾娃————《PRICE》
+- 伊卡洛斯————《300英雄》
+
+- 2015年
+
+- 日语（语音）————《彼之声》
+- [蕾米莉亚·斯卡雷特](https://zh.moegirl.org.cn/蕾米莉亚·斯卡雷特)————《[东方幻梦笺](https://zh.moegirl.org.cn/东方幻梦笺)》
+
+- 2016年
+
+- 缇米————《300英雄》
+- 萤子————《[第九日](https://zh.moegirl.org.cn/第九日)》
+- 萌萌————《甜甜萌物语》
+- **[布洛妮娅·扎伊切克](https://zh.moegirl.org.cn/布洛妮娅·扎伊切克(崩坏3))**————《[崩坏3](https://zh.moegirl.org.cn/崩坏3)》
+
+- 2017年
+
+- **[平海(国服)](https://zh.moegirl.org.cn/碧蓝航线:平海)**、**[宁海(国服)](https://zh.moegirl.org.cn/碧蓝航线:宁海)**————《[碧蓝航线](https://zh.moegirl.org.cn/碧蓝航线)》
+- **李雯**————《[WILL：美好世界](https://zh.moegirl.org.cn/WILL：美好世界)》
+- 夏雯颖————《端木斐异闻录》
+- **[布洛妮娅·扎伊切克](https://zh.moegirl.org.cn/布洛妮娅·扎伊切克(崩坏学园2))**————《[崩坏学园2](https://zh.moegirl.org.cn/崩坏学园2)》
+
+- 2018年
+
+- **[33](https://zh.moegirl.org.cn/碧蓝航线:33)**————《[碧蓝航线](https://zh.moegirl.org.cn/碧蓝航线)》
+- 珂赛特————《无终之旅》
+
+- 2019年
+
+- [九千岁](https://zh.moegirl.org.cn/非人学园:九千岁)————《[非人学园](https://zh.moegirl.org.cn/非人学园)》
+- 烟玉————《[东方龙隐谈](https://zh.moegirl.org.cn/东方龙隐谈)》
+
+- 2020年
+
+- [斯洛卡伊](https://zh.moegirl.org.cn/机动战队:斯洛卡伊)、[多莉丝](https://zh.moegirl.org.cn/机动战队:多莉丝)、[爱丽](https://zh.moegirl.org.cn/机动战队:爱丽)————《[机动战队](https://zh.moegirl.org.cn/机动战队)》
+- 爱茵————《青空之刃》
+- 潘多拉、海黛丝、艾希（初版）、弥娅————《[奥奇传说](https://zh.moegirl.org.cn/奥奇传说)》
+- 光荣————《深渊地平线》
+- [贝阿朵](https://zh.moegirl.org.cn/幻书启世录:贝阿朵%26维吉尔)————《[幻书启世录](https://zh.moegirl.org.cn/幻书启世录)》
+- 岚岚————《星之彼端》
+
+- 2021年
+
+- **双花**————《葬花·暗黑桃花源》
+- **[布洛妮娅·扎伊切克](https://zh.moegirl.org.cn/布洛妮娅·扎伊切克(崩坏3))**————《[后崩坏书2](https://zh.moegirl.org.cn/后崩坏书)》
+
+- 2022年
+
+- 玛格丽特————《二分之一》
+- **埃克媞可**————《[环行旅舍](https://zh.moegirl.org.cn/环行旅舍)》
+- [普罗米修斯十七号](https://zh.moegirl.org.cn/普罗米修斯十七号)————《[崩坏3](https://zh.moegirl.org.cn/崩坏3)》
+
+- 2023年
+
+- 小神————《叛逆神魂GODSOUL》
+- 太阳系的评议者————《太阳风计划 Project Nornium》
+- [银狼](https://zh.moegirl.org.cn/银狼(星穹铁道))————《[崩坏：星穹铁道](https://zh.moegirl.org.cn/崩坏：星穹铁道)》
+
+- 2024年
+
+- **[穗](https://zh.moegirl.org.cn/满穗)**————《[饿殍：明末千里行](https://zh.moegirl.org.cn/饿殍：明末千里行)》
+- 夏尔————《[雷索纳斯](https://zh.moegirl.org.cn/雷索纳斯)》
+
+
 
 > ### 本blog内容来源
 > - [Hanser - 萌娘百科 万物皆可萌的百科全书](https://zh.moegirl.org.cn/zh-hans/Hanser) 
